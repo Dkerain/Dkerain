@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on Game Making...
 - 📫 How to reach me 1132237070@qq.com
 - 😄 Pronouns:What doesn't kill you makes you stronger.
-- ⚡ Fun fact: Relax and Kepp Running
+- ⚡ Fun fact: Relax and Kepp Learning
 
 <!---
 Dkerain/Dkerain is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
